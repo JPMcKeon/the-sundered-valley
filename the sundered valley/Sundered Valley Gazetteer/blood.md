@@ -1,0 +1,2 @@
+# What we know
+A large stalactite was discovered in a cave during a summit attempt of [[Athanear Mountain]]. The stalactite, now known as [[The Tooth]], pours mysterious, blood-like red liquid during various phases of the moon. The blood has magical properties. 

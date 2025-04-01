@@ -1,0 +1,1 @@
+Greeted by a ghostly librarian who takes the form of a tutting elderly gnome apparently chained to the circulation desk. Librarian does not approve of the knaves coming in to the atrium with filthy boots and complains. 
